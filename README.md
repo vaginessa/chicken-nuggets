@@ -1,5 +1,5 @@
 # chicken-nuggets
-## STUFF I CONSIDER SOMEHOW/VERY/EXTREME USEFUL @NOW | awesome | sexy |  
+## STUFF I CONSIDER SOMEHOW USEFUL @NOW | awesome | sexy |  
 
 
 ----  
